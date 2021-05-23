@@ -1,1 +1,1 @@
-### Hi there, I'm [HuoHaodong](https://www.huohaodong.com/) 👋
+### Hi there, I'm HuoHaodong 👋
